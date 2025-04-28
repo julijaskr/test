@@ -9,5 +9,3 @@ Visada jautė, kad nori dalintis savo žiniomis Įmonės „Grand Partners“ be
 
 
 Po kurio laiko visi mano mokiniai puikiai kalbėjo angliškai“, – prisimena R. Gaidukas. Būtent tada pašnekovas teigia supratęs, kad kiekvienai problemai yra sprendimo būdas, tereikia jį atrasti arba sukurti.
-
-Skaitykite daugiau: https://www.delfi.lt/verslo-poziuris/specialus-interviu/nuo-vaiku-anglu-kalbos-korepetitoriaus-iki-vadovo-romanas-gaidukas-papasakojo-kodel-su-juo-konsultuojasi-lyderiai-is-viso-pasaulio-120102536
