@@ -1,1 +1,0 @@
-bendras projektu aprasymas 
